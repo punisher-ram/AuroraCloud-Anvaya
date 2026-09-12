@@ -190,6 +190,5 @@ One private space for your conversations, files, finances, plans, and intelligen
 ✨ Intelligent by choice.
 
 
-━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━━
 
 ⚡ Aurora Cloud by hash
